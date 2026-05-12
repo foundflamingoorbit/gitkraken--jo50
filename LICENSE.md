@@ -1,4 +1,4 @@
-# 
+# smart GitKraken for PC | GitKraken for Windows Extension | branch-visualization + cherry-picking offers the most advanced GitKraken for PC | GitKraken for Windows extension, with
 
 
 
